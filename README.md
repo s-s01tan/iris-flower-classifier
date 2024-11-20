@@ -1,8 +1,8 @@
 ### Watch on YouTube! ❤️
 <br/>
-Video: https://youtu.be/Cz1WtCKnqfI
+Video: https://youtu.be/Cz1WtCKnqfI (This video has been removed, because I reset my channel)
 <br/>
-Channel: https://www.youtube.com/@soltechno
+Channel: https://www.youtube.com/@soltechno-us (Visit and Subscribe :D)
 <hr/>
 
 ### Follow on Instagram! 💫
